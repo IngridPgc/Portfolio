@@ -1,2 +1,2 @@
 # Portfolio
-Aqui estão todas as minhas tragetórias
+Aqui estão todas as minhas trajetórias
